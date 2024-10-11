@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSecurity and Ethical Hacking
 - 🌱 I’m currently learning Msc. in Cybersecurity
 - 💞️ I’m looking to collaborate on the Projects
-- 📫 How to reach me you can't
+- 📫 How to reach me -  you can't
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: It does not exists for the ethical hackers
 
